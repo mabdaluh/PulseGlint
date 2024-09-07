@@ -1,0 +1,2 @@
+# PulseGlint
+Affiliate Marketing Magazine
